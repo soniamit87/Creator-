@@ -7,6 +7,6 @@ here.
 ji 
 yaha
  kya
- 
+ kar
  rahe
  ho 
